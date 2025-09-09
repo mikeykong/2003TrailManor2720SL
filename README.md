@@ -1,5 +1,7 @@
 # 2003 TrailManor 2720 SL
 
+No problems other than the roof AC not working. It will come with a replacement air conditioner. It trailers behind really well. They're REALLY built well and the manufacturer has thought of everything to make it as easy as possible to enjoy the outdoors!
+
 # Specs/Options
 
   - Length Folded: 20'3"
